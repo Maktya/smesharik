@@ -1,4 +1,5 @@
-!(https://1drv.ms/i/s!Ahyb-N9l1WftlRk_JThzd8mtl3wK?e=NXzVft)
+![myL1MPTdvLQ](https://github.com/Maktya/smesharik/assets/134498441/1775ac48-d825-4c1d-b01e-38253c9d9cbf)
+
 
 # site of a car repair shop, made under a meme
 
